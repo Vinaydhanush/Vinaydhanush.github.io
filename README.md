@@ -1,2 +1,0 @@
-# Vinaydhanush.github.io
-portfolio
